@@ -7,11 +7,11 @@
 
 - 👯 I’m looking to collaborate on **on Opensource projects.**
 
-- 📫 How to reach me [LinkedIn : https://www.linkedin.com/in/randika-batawala-13094021a/]
+- 📫 How to reach me **LinkedIn : https://www.linkedin.com/in/randika-batawala-13094021a/**
 
 - 📫 How to reach me **Email : randika.batawala99@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1r5elqRzg8c52vSP1qhrhxl-H1u9MBZ2N/view?usp=share_link](https://drive.google.com/file/d/1r5elqRzg8c52vSP1qhrhxl-H1u9MBZ2N/view?usp=share_link)
+- 📄 Know about my experiences **Resume : [https://drive.google.com/file/d/1r5elqRzg8c52vSP1qhrhxl-H1u9MBZ2N/view?usp=share_link](https://drive.google.com/file/d/1r5elqRzg8c52vSP1qhrhxl-H1u9MBZ2N/view?usp=share_link)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
