@@ -5,7 +5,7 @@
 
 - 🌱 I’m currently learning **MERN Stack.**
 
-- 👯 I’m looking to collaborate on ** Opensource projects.**
+- 👯 I’m looking to collaborate **on Opensource projects.**
 
 - 📫 How to reach me **LinkedIn : https://www.linkedin.com/in/randika-batawala-13094021a/**
 
