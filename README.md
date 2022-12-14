@@ -7,7 +7,7 @@
 
 - 👯 I’m looking to collaborate on **on Opensource projects.**
 
-- 📫 How to reach me [LinkedIn : https://www.linkedin.com/in/randika-batawala-13094021a/](LinkedIn : https://www.linkedin.com/in/randika-batawala-13094021a/)
+- 📫 How to reach me [LinkedIn : https://www.linkedin.com/in/randika-batawala-13094021a/]
 
 - 📫 How to reach me **Email : randika.batawala99@gmail.com**
 
